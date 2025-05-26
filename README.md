@@ -1,2 +1,1 @@
 # Arquitectura_del_computador 
-hollllllaaaaaaaaaa
